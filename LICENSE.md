@@ -1,4 +1,4 @@
-
+re:rangers x stealth Script is the best re:rangers x Script, featuring god mode and auto-upgrade. Safe and powerful for all your needs.
 
 
 
